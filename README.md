@@ -1,3 +1,3 @@
 # EatSmart-S-T
 ---------------------
-Gautham and Karthik
+Missouri S&T
